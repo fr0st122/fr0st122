@@ -2,7 +2,6 @@
 - 👀 I’m interested in create software to learn and improve my skills 
 - 🌱 I’m currently studing Engineer in Software 
 - 📫 How to reach me with my email jesusdiaz300804@gmail.com
-- 😄 Pronouns: i like to be called "Junior"
 - 🌎 I'm from Mexico more precisely "Sonora"
 - ⚡ Fun fact: I like to sleep , play games and learn new things
 
